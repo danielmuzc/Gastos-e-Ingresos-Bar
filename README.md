@@ -1,1 +1,0 @@
-# Gastos-e-Ingresos-Bar
